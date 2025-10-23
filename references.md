@@ -1,3 +1,2 @@
 # References
-Contact information available upon request.
-
+Contact information available upon request
